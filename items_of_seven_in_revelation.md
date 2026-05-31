@@ -44,6 +44,8 @@ The most important “7” groupings are:
 Those four sets form a major backbone of the book.
 
 ## Revelation **5:6**
+'And I beheld, and, lo, in the midst of the throne and of the four beasts, and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. '
+https://www.bible.com/bible/1/REV.5.6.KJV
 
 In Bible symbolism, a horn often represents power, strength, or authority. The number seven often points to fullness or completeness. So seven horns points to Christ’s complete power and authority.
 
