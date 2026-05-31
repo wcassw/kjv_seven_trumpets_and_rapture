@@ -43,6 +43,19 @@ The most important “7” groupings are:
 
 Those four sets form a major backbone of the book.
 
+## Revelation **12:3**
+The seven heads show Satan’s organized power working through earthly kingdoms and rulers against God, Christ, and God’s people.
+
+In the flow of Revelation 12, the dragon is trying to destroy the man child, who is commonly understood as Christ. When he fails, he turns his hatred toward the woman and “the remnant of her seed,” meaning those who keep God’s commandments and have the testimony of Jesus Christ.
+
+Symbol | Meaning
+| --- | --- |
+| Dragon | Satan, the Devil |
+| Red | Bloodshed, violence, destruction |
+| Seven heads | Fullness of worldly power, kingdoms, or ruling authority |
+| Ten horns | Great political/military strength |
+| Seven crowns | Authority, rule, or dominion |
+
 ## Revelation **5:6**
 'And I beheld, and, lo, in the midst of the throne and of the four beasts, and in the midst of the elders, stood a Lamb as it had been slain, having seven horns and seven eyes, which are the seven Spirits of God sent forth into all the earth. '
 https://www.bible.com/bible/1/REV.5.6.KJV
