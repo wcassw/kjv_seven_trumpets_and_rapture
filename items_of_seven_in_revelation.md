@@ -42,3 +42,29 @@ The most important “7” groupings are:
 4. **7 bowls/vials** — Revelation **15–16**
 
 Those four sets form a major backbone of the book.
+
+## Revelation **5:6**
+
+In Bible symbolism, a horn often represents power, strength, or authority. The number seven often points to fullness or completeness. So seven horns points to Christ’s complete power and authority.
+
+“seven eyes” which are the seven Spirits of God sent forth into all the earth.
+The seven eyes point to the fullness of the Spirit of God and complete divine knowledge. Nothing is hidden from Christ. He sees all, knows all, and His Spirit is active throughout the whole earth.
+
+verse is saying:
+
+Jesus is the slain Lamb, risen and standing, possessing complete power, complete knowledge, and the fullness of the Spirit of God.
+
+A simple breakdown:
+
+|Symbol|	Meaning |
+| --- | --- |
+|Lamb	|Jesus Christ as the sacrifice for sin |
+|As it had been slain|	His crucifixion and sacrificial death |
+|Standing|	His resurrection and victory |
+|Seven horns|	Complete power and authority |
+|Seven eyes|	Complete sight, knowledge, and the fullness of God’s Spirit |
+|Sent forth into all the earth|	God’s Spirit working throughout the world |
+
+**Revelation 5** is about who is worthy to open the sealed book. No one is found worthy until the Lamb appears. That means Christ alone has the right and authority to open the seals and carry out God’s final plan.
+
+
