@@ -42,7 +42,6 @@ The word **“rapture”** is **not used in the KJV Bible**, but the event peopl
 
 The clearest KJV wording is **1 Thessalonians 4:16–17**:
 
-> “For the Lord himself shall descend from heaven with a shout… and the dead in Christ shall rise first:  
-> Then we which are alive and remain shall be **caught up** together with them in the clouds, to meet the Lord in the air…”
+> “For the Lord himself shall descend from heaven with a shout… and the dead in Christ shall rise first: Then we which are alive and remain shall be **caught up** together with them in the clouds, to meet the Lord in the air…”
 
 So, in the KJV, look especially at **1 Thessalonians 4:13–18** and **1 Corinthians 15:51–52**.
